@@ -13,6 +13,5 @@ Products include:
 ## Website
 Visit the store here:
 https://jbvendor.github.io
-
-its.mvk4 on ig
+resellwitjb on ig
 DM to order.
